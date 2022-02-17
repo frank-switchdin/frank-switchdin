@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @frank-switchdin
+- 👀 I’m interested in economics, hacking, culture
+- 🌱 I’m currently learning arabic
+- 💞️ I’m looking to collaborate on decentralised tech
+- 📫 How to reach me. IRC.
